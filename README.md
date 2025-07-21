@@ -6,9 +6,11 @@
 ![IMG_5254](https://github.com/user-attachments/assets/8e241b37-c1a3-4385-8fba-32eafcd50f77)
 ᏴᎩᏆ;
 
-![IMG_5239](https://github.com/user-attachments/assets/a97b3b3e-9b93-4146-a722-f11b5a5f66c2) I don't mind when people interact with me  (unless stated otherwise by me or anyone im sitting with, or if you are under 15) but I am socially awkward so i may come off as nervous/quiet at first but if we talk more I gradually open up! I am also an avid overthinker so I would really appreciate lots of reassurance ^_^ I also tend to hide freely when people pmo and I dont rlly like chats covering me or when its crowded, so I will tend to move if either are the case. 
+                                                  
+I don't mind when people interact with me  (unless stated otherwise by me or anyone im sitting with, or if you are under 15) but I am socially awkward so i may come off as nervous/quiet at first but if we talk more I gradually open up! I am also an avid overthinker so I would really appreciate lots of reassurance ^_^ I also tend to hide freely when people pmo and I dont rlly like chats covering me or when its crowded, so I will tend to move if either are the case. 
 
 ![](https://github.com/user-attachments/assets/a97b3b3e-9b93-4146-a722-f11b5a5f66c2) My memory is also really bad so apologies if i forget who you are, it's nothing personal.
+![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
 
 ![image](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
 
