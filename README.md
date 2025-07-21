@@ -40,7 +40,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 ![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)"Im gonna touch you" joke makers
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who talk shit abt my friends, fuck off (^_^), especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
 
 
 ![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who make NSFW jokes in public chat
