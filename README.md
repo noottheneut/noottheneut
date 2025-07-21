@@ -27,7 +27,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 ![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
 
 ![IMG_5238](https://github.com/user-attachments/assets/05c0f67e-37dc-4c87-8b60-f0320c74e29b)
- ᎠƝᏆ เƒ;
+ ᎠƝᏆ;
 
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Under 15, I am 18 so I prefer to talk to people near my age range
