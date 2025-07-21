@@ -22,43 +22,35 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 ![IMG_5257](https://github.com/user-attachments/assets/1f247fcb-2241-4d14-a333-767d40509e0f)
  Identity v, Dandy's world (roblox in general), LAUFEY FANS PLEASE INTERACT!!!!! Little nightmares, Little Misfortune, BATIM, Danganronpa, Wasia project, Sabrina Carpenter, American horror story, DBD, Texas chainsaw massacre, Expedition 33, Paddington, TWD; Telltale edition, anything Moomin related, Fortnite,  Bandori
-
 ![](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
 
+![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
 
 ![IMG_5238](https://github.com/user-attachments/assets/05c0f67e-37dc-4c87-8b60-f0320c74e29b)
- ᎠƝᏆ ;
+ ᎠƝᏆ เƒ;
 
 
 
-
-![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7)
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)
  Under 15, I am 18 so I prefer to talk to people near my age range
 
 
-![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) Basic dni criteria (homophobic, transphobic, racists, etc)
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Basic dni criteria (homophobic, transphobic, racists, etc)
 
 
-![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) "Im gonna touch you" joke makers
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)"Im gonna touch you" joke makers
 
-![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
-
-
-![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) People who make NSFW jokes in public chat
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
 
 
-![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) Bullies in general
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who make NSFW jokes in public chat
+
+
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Bullies in general
 
 ty for reading !! :3 
-
-
-![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
 
 <img width="625" height="625" alt="download" src="https://github.com/user-attachments/assets/3a9a2947-ce6e-488e-90e3-16917000588c" />
 
 ![sword](https://github.com/user-attachments/assets/7a1d4a79-168d-4455-bebe-2e9e10ab1b1d)
-
-
-
-
 
