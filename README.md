@@ -31,24 +31,28 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)
+
+![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7)
  Under 15, I am 18 so I prefer to talk to people near my age range
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Basic dni criteria (homophobic, transphobic, racists, etc)
+![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) Basic dni criteria (homophobic, transphobic, racists, etc)
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)"Im gonna touch you" joke makers
+![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) "Im gonna touch you" joke makers
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
-
-
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who make NSFW jokes in public chat
+![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Bullies in general
+![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) People who make NSFW jokes in public chat
+
+
+![angry](https://github.com/user-attachments/assets/a8e2e962-5ac4-4117-84fe-158b071874e7) Bullies in general
 
 ty for reading !! :3 
+
+
+![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
 
 ![sword](https://github.com/user-attachments/assets/7a1d4a79-168d-4455-bebe-2e9e10ab1b1d)
 
