@@ -30,23 +30,21 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
  ᎠƝᏆ เƒ;
 
 
-
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)
- Under 15, I am 18 so I prefer to talk to people near my age range
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Under 15, I am 18 so I prefer to talk to people near my age range
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Basic dni criteria (homophobic, transphobic, racists, etc)
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Basic dni criteria (homophobic, transphobic, racists, etc)
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)"Im gonna touch you" joke makers
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) "Im gonna touch you" joke makers
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
-
-
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who make NSFW jokes in public chat
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
 
 
-![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Bullies in general
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who make NSFW jokes in public chat
+
+
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Bullies in general
 
 ty for reading !! :3 
 
