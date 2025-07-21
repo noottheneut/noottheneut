@@ -3,7 +3,8 @@
 
 <img width="1582" height="1000" alt="image" src="https://github.com/user-attachments/assets/c4deb609-e2c9-476e-8468-024c73febffb" />
 
-![](https://github.com/user-attachments/assets/26a4ae52-9b7b-476f-a3fd-d8b8bb8e3ffe) ᏴᎩᏆ;
+![IMG_5254](https://github.com/user-attachments/assets/8e241b37-c1a3-4385-8fba-32eafcd50f77)
+ᏴᎩᏆ;
 
 ![](https://github.com/user-attachments/assets/a97b3b3e-9b93-4146-a722-f11b5a5f66c2) I don't mind when people interact with me  (unless stated otherwise by me or anyone im sitting with, or if you are under 15) but I am socially awkward so i may come off as nervous/quiet at first but if we talk more I gradually open up! I am also an avid overthinker so I would really appreciate lots of reassurance ^_^ I also tend to hide freely when people pmo and I dont rlly like chats covering me or when its crowded, so I will tend to move if either are the case. 
 
