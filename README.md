@@ -7,44 +7,52 @@
 ᏴᎩᏆ;
 
                                                   
+![IMG_5240](https://github.com/user-attachments/assets/23d601bd-47b2-4662-879e-b9712b8d3556)
 I don't mind when people interact with me  (unless stated otherwise by me or anyone im sitting with, or if you are under 15) but I am socially awkward so i may come off as nervous/quiet at first but if we talk more I gradually open up! I am also an avid overthinker so I would really appreciate lots of reassurance ^_^ I also tend to hide freely when people pmo and I dont rlly like chats covering me or when its crowded, so I will tend to move if either are the case. 
 
-![](https://github.com/user-attachments/assets/a97b3b3e-9b93-4146-a722-f11b5a5f66c2) My memory is also really bad so apologies if i forget who you are, it's nothing personal.
+![IMG_5240](https://github.com/user-attachments/assets/34830ea4-ee52-462c-a2be-a6dd7b8e9ed8)
+ My memory is also really bad so apologies if i forget who you are, it's nothing personal.
+
 ![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
 
-![image](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
 
-![](https://github.com/user-attachments/assets/4c50833b-9a39-44a8-8b65-9e9e0388665a) ᏆƝᎢ (ιϝ ყσυ ʅιƙҽ / ʂƚυϝϝ ι ʅιƙҽ);
+![IMG_5260](https://github.com/user-attachments/assets/23c5dfff-f523-48e0-9817-cca483015c40)
+ ᏆƝᎢ (ιϝ ყσυ ʅιƙҽ / ʂƚυϝϝ ι ʅιƙҽ);
 
-![](https://github.com/user-attachments/assets/8a83a210-2c27-4322-a650-6d9eb188594d) Identity v, Dandy's world (roblox in general), LAUFEY FANS PLEASE INTERACT!!!!! Little nightmares, Little Misfortune, BATIM, Danganronpa, Wasia project, Sabrina Carpenter, American horror story, DBD, Texas chainsaw massacre, Expedition 33, Paddington, TWD; Telltale edition, anything Moomin related, Fortnite,  Bandori
+
+![IMG_5257](https://github.com/user-attachments/assets/1f247fcb-2241-4d14-a333-767d40509e0f)
+ Identity v, Dandy's world (roblox in general), LAUFEY FANS PLEASE INTERACT!!!!! Little nightmares, Little Misfortune, BATIM, Danganronpa, Wasia project, Sabrina Carpenter, American horror story, DBD, Texas chainsaw massacre, Expedition 33, Paddington, TWD; Telltale edition, anything Moomin related, Fortnite,  Bandori
 
 ![](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
 
-![](https://github.com/user-attachments/assets/77faceac-1762-4518-9fee-e4bb6f598cd1)
+
+![IMG_5238](https://github.com/user-attachments/assets/05c0f67e-37dc-4c87-8b60-f0320c74e29b)
  ᎠƝᏆ เƒ;
 
 
-![](https://github.com/user-attachments/assets/d1b4ebd9-050c-4e74-8001-005ebfbe6803) Under 15, I am 18 so I prefer to talk to people near my age range
+
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)
+ Under 15, I am 18 so I prefer to talk to people near my age range
 
 
-![](https://github.com/user-attachments/assets/d1b4ebd9-050c-4e74-8001-005ebfbe6803) Basic dni criteria (homophobic, transphobic, racists, etc)
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Basic dni criteria (homophobic, transphobic, racists, etc)
 
 
-![](https://github.com/user-attachments/assets/d1b4ebd9-050c-4e74-8001-005ebfbe6803) "Im gonna touch you" joke makers
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788)"Im gonna touch you" joke makers
 
-![](https://github.com/user-attachments/assets/d1b4ebd9-050c-4e74-8001-005ebfbe6803) People who talk shit abt my friends, fuck off (^_^), especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
-
-
-![](https://github.com/user-attachments/assets/d1b4ebd9-050c-4e74-8001-005ebfbe6803) People who make NSFW jokes in public chat
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who talk shit abt my friends, fuck off (^_^), especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
 
 
-![](https://github.com/user-attachments/assets/d1b4ebd9-050c-4e74-8001-005ebfbe6803) Bullies in general
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) People who make NSFW jokes in public chat
+
+
+![IMG_5255](https://github.com/user-attachments/assets/823c10b0-e403-42d1-b112-36bab6514788) Bullies in general
 
 ty for reading !! :3 
 
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/d9f810d0-73b8-4170-b4d0-e6137a12307c" />
+![sword](https://github.com/user-attachments/assets/7a1d4a79-168d-4455-bebe-2e9e10ab1b1d)
 
-![](https://github.com/user-attachments/assets/b5666ab3-ebe9-4af0-8405-7571b3c45060)
+<img width="625" height="625" alt="download" src="https://github.com/user-attachments/assets/3a9a2947-ce6e-488e-90e3-16917000588c" />
 
 
 
