@@ -50,7 +50,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 ty for reading !! :3 
 
-<img width="625" height="625" alt="download" src="https://github.com/user-attachments/assets/3a9a2947-ce6e-488e-90e3-16917000588c" />
+<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/0bb69fba-fc7c-4adf-aca6-00888b2444e5" />
 
 ![sword](https://github.com/user-attachments/assets/7a1d4a79-168d-4455-bebe-2e9e10ab1b1d)
 
