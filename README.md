@@ -27,7 +27,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 
 ![IMG_5238](https://github.com/user-attachments/assets/05c0f67e-37dc-4c87-8b60-f0320c74e29b)
- ᎠƝᏆ เƒ;
+ ᎠƝᏆ ;
 
 
 
