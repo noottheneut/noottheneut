@@ -21,7 +21,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 
 ![IMG_5257](https://github.com/user-attachments/assets/1f247fcb-2241-4d14-a333-767d40509e0f)
- Identity v, Dandy's world (roblox in general), LAUFEY FANS PLEASE INTERACT!!!!! Little nightmares, Little Misfortune, BATIM, Danganronpa, Wasia project, Sabrina Carpenter, American horror story, DBD, Texas chainsaw massacre, Expedition 33, Paddington, TWD; Telltale edition, anything Moomin related, Fortnite,  Bandori
+ Identity v, Dandy's world (roblox in general), LAUFEY FANS PLEASE INTERACT!!!!! Little nightmares, Little Misfortune, BATIM, Danganronpa, Wasia project, Sabrina Carpenter, American horror story, DBD, Texas chainsaw massacre, Expedition 33, Paddington, TWD; Telltale edition, anything Moomin related, Fortnite,  Bandori, Classical music enjoyers (check out my new playlist (wip!)
 ![](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
 
 ![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
