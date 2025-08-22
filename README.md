@@ -38,7 +38,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) "Im gonna touch you" joke makers
 
-![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband (ghostyvamps // looeytheballoon). I really don't care about any of the negative things you have to say about him.
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband ghostyvamps. I really don't care about any of the negative things you have to say about him.
 
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who make NSFW jokes in public chat
