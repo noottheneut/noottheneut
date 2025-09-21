@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=noottheneut&style=plastic&color=8c0000&label=🌹)
 
 
-<img width="1582" height="1000" alt="image" src="https://github.com/user-attachments/assets/c4deb609-e2c9-476e-8468-024c73febffb" />
-
 ![IMG_5254](https://github.com/user-attachments/assets/8e241b37-c1a3-4385-8fba-32eafcd50f77)
 ᏴᎩᏆ;
 
@@ -38,7 +36,6 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) "Im gonna touch you" joke makers
 
-![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who talk shit abt my friends, but especially if you talk shit, spread false rumours or hate my husband ghostyvamps. I really don't care about any of the negative things you have to say about him.
 
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who make NSFW jokes in public chat
@@ -48,7 +45,6 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 ty for reading !! :3 
 
-<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/0bb69fba-fc7c-4adf-aca6-00888b2444e5" />
 
 ![sword](https://github.com/user-attachments/assets/7a1d4a79-168d-4455-bebe-2e9e10ab1b1d)
 
