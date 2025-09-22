@@ -28,7 +28,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
  ᎠƝᏆ;
 
 
-![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Under 15, I am 18 so I prefer to talk to people near my age range
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Under 16, I am 19 so I prefer to talk to people near my age range
 
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Basic dni criteria (homophobic, transphobic, racists, etc)
