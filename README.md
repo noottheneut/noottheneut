@@ -19,7 +19,9 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 
 ![IMG_5257](https://github.com/user-attachments/assets/1f247fcb-2241-4d14-a333-767d40509e0f)
- Identity v, Dandy's world (roblox in general), LAUFEY FANS PLEASE INTERACT!!!!! Little nightmares, Little Misfortune, BATIM, Danganronpa, Wasia project, Sabrina Carpenter, American horror story, DBD, Texas chainsaw massacre, Expedition 33, Paddington, TWD; Telltale edition, anything Moomin related, Fortnite,  Bandori, Classical music enjoyers, Fear and Hunger + more! do ask!!
+ LOVE ♡ = Identity V, Fortnite, Roblox, Dbd, Razzle and Dazzle from Dandy's world AND hazbin, Angie yonaga, toy merchant / annie, LAUFEY ♡, Sabrina Carpenter, Classical music, American horror story, Fear and Hunger, Paddington ♡, Race around the world, Dandy's world, History, Bandori, Rimi ushigome ♡, Rupauls drag race
+
+ LIKE ☆ = Little Misfortune, Little nightmares, baldi's basics, expedition 33, Date everything, Dress to impress, Papa's games, Hazbin Hotel, Omori (not omocat), MLBB, Cookie run kingdom/ovenbreak, I might add more - please ask for more!
 ![](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
 
 ![IMG_5239](https://github.com/user-attachments/assets/bced5a25-aecd-4652-ac09-656880a47f2c)
@@ -31,14 +33,14 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Under 16, I am 19 so I prefer to talk to people near my age range
 
 
-![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Basic dni criteria (homophobic, transphobic, racists, etc)
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) DNI IF YOU ARE PROBLEMATIC / I BLOCK AND HIDE FREELY! 
 
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) "Im gonna touch you" joke makers
 
 
 
-![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who make NSFW jokes in public chat
+![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) People who make NSFW jokes in public chat on safe server (for pt)
 
 
 ![angry](https://github.com/user-attachments/assets/f896f9e4-b719-4f06-a5f2-2c9480d99aad) Bullies in general
