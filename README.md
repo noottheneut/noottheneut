@@ -19,7 +19,7 @@ I don't mind when people interact with me  (unless stated otherwise by me or any
 
 
 ![IMG_5257](https://github.com/user-attachments/assets/1f247fcb-2241-4d14-a333-767d40509e0f)
- LOVE ♡ = Identity V, Fortnite, Roblox, Dbd, Razzle and Dazzle from Dandy's world AND hazbin, Angie yonaga, toy merchant / annie, LAUFEY ♡, Sabrina Carpenter, Classical music, American horror story, Fear and Hunger, Paddington ♡, Race around the world, Dandy's world, History, Bandori, Rimi ushigome ♡, Rupauls drag race, Moomins, Snufkin ♡, Sunspot / Sunspot cold fusion ♡♡♡♡
+ LOVE ♡ = Identity V, Fortnite, Roblox, Dbd, Razzle and Dazzle from Dandy's world AND hazbin, Angie yonaga, toy merchant / annie, LAUFEY ♡, Sabrina Carpenter, Classical music, American horror story, Fear and Hunger, Paddington ♡, Race around the world, Dandy's world, History, Bandori, Rimi ushigome ♡, Rupauls drag race, Moomins, Snufkin ♡, Sunspot / Sunspot cold fusion ♡♡♡♡, Castlevania
 
  LIKE ☆ = Little Misfortune, Little nightmares, baldi's basics, expedition 33, Date everything, Dress to impress, Papa's games, Hazbin Hotel, Omori (not omocat), MLBB, Cookie run kingdom/ovenbreak, I might add more - please ask for more!
 ![](https://github.com/user-attachments/assets/2d1a9c68-acbe-40f3-8b2c-5696847a5062)
