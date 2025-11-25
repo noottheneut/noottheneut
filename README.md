@@ -6,7 +6,7 @@
 
                                                   
 ![IMG_5240](https://github.com/user-attachments/assets/23d601bd-47b2-4662-879e-b9712b8d3556)
-I don't mind when people interact with me  (unless stated otherwise by me or anyone im sitting with, or if you are under 16) but I am socially awkward so i may come off as nervous/quiet at first but if we talk more I gradually open up! I am also an avid overthinker so I would really appreciate lots of reassurance from friends ^_^ I also tend to hide freely when people pmo and I dont rlly like chats covering me or when its crowded, so I will tend to move if either are the case. 
+Hi! Im noot :3 I am bi and a male using he/him! I don't mind when people interact with me  (unless stated otherwise by me or anyone im sitting with, or if you are under 16) but I am socially awkward so i may come off as nervous/quiet at first but if we talk more I gradually open up! I am also an avid overthinker so I would really appreciate lots of reassurance from friends ^_^ I also tend to hide freely when people pmo and I dont rlly like chats covering me or when its crowded, so I will tend to move if either are the case. 
 
 ![IMG_5240](https://github.com/user-attachments/assets/34830ea4-ee52-462c-a2be-a6dd7b8e9ed8)
  My memory is also really bad so apologies if i forget who you are, it's nothing personal.
